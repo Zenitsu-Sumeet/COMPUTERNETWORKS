@@ -32,7 +32,7 @@ Q5)
 ![Screenshot 2022-11-05 154421(3)](https://user-images.githubusercontent.com/113230293/200115348-f95c67a5-f14f-4bbb-befa-63aef5d54cba.png)
 
 
-Q5)
+Q6)
 
 
 ![Screenshot 2022-11-05 154815(4)](https://user-images.githubusercontent.com/113230293/200115710-774da9bf-4304-4a34-9fad-dea2fa364a1a.png)
